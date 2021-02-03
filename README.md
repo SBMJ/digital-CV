@@ -36,7 +36,6 @@ I am a well-organised, efficient working professional looking to progress and de
  <br><br>
  
 ## Education
-<br><br>
 
 Thomas Tallis 6th Form, London - 2010 - 2012<br>
 Law, Religious Education and Computing<br>
@@ -46,12 +45,10 @@ Data Science & Computing BSc
 <br><br>
 
 ## Skills
-<br><br>
 
 I am fully proficient in Microsoft Office, CRM Databases, Management of staff, Supply Chain Optimisation and Management with a working knowledge of Python, Bash & Linux systems.
 <br><br>
 
 ## References
-<br>
 
 Available upon request.
