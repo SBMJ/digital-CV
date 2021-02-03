@@ -20,7 +20,7 @@ I am a well-organised, efficient working professional looking to progress and de
   -Communicating with vendors and clients
   -Liaise with site managers on supplies
   -Problem solving within the supply chain
-<br>
+<br><br>
 
 **Technical support & Back of House Team Lead, Dixons Carphone, London — 2013-2018**
   -Managing laptop, desktop & Mac repairs (Software & Hardware
@@ -31,5 +31,5 @@ I am a well-organised, efficient working professional looking to progress and de
   -Team building
   -Communication with team and consumers
   -Hiring and Training of new staf
-  
+ <br><br>
  
