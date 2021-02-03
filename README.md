@@ -35,7 +35,7 @@ I am a well-organised, efficient working professional looking to progress and de
   -Hiring and Training of new staff
  <br><br>
  
-##Education
+## Education
 <br><br>
 
 Thomas Tallis 6th Form, London - 2010 - 2012<br>
@@ -45,13 +45,13 @@ Birkbeck, University of London - 2020<br>
 Data Science & Computing BSc
 <br><br>
 
-##Skills
+## Skills
 <br><br>
 
 I am fully proficient in Microsoft Office, CRM Databases, Management of staff, Supply Chain Optimisation and Management with a working knowledge of Python, Bash & Linux systems.
 <br><br>
 
-##References
+## References
 <br>
 
 Available upon request.
