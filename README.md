@@ -24,6 +24,7 @@ I am a well-organised, efficient working professional looking to progress and de
 
 **Technical support & Back of House Team Lead, Dixons Carphone, London — 2013-2018**
 <br>
+
   -Managing laptop, desktop & Mac repairs (Software & Hardware<br>
   -Stock Management<br>
   -Purchasing of stock to meet demand<br>
