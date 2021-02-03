@@ -14,22 +14,23 @@ I am a well-organised, efficient working professional looking to progress and de
 **Materials Buyer, Galliard Homes, Essex — 2018–Present**
 <br>
 
-  -Purchasing of building goods
-  -Negotiating material cost with vendors
-  -Pricing estimations on a project by project basis
-  -Communicating with vendors and clients
-  -Liaise with site managers on supplies
+  -Purchasing of building goods<br>
+  -Negotiating material cost with vendors<br>
+  -Pricing estimations on a project by project basis<br>
+  -Communicating with vendors and clients<br>
+  -Liaise with site managers on supplies<br>
   -Problem solving within the supply chain
 <br><br>
 
 **Technical support & Back of House Team Lead, Dixons Carphone, London — 2013-2018**
-  -Managing laptop, desktop & Mac repairs (Software & Hardware
-  -Stock Management
-  -Purchasing of stock to meet demand
-  -Processing of Goods
-  -Financial Management
-  -Team building
-  -Communication with team and consumers
-  -Hiring and Training of new staf
+<br>
+  -Managing laptop, desktop & Mac repairs (Software & Hardware<br>
+  -Stock Management<br>
+  -Purchasing of stock to meet demand<br>
+  -Processing of Goods<br>
+  -Financial Management<br>
+  -Team building<br>
+  -Communication with team and consumers<br>
+  -Hiring and Training of new staff
  <br><br>
  
