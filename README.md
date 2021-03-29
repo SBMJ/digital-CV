@@ -1,7 +1,5 @@
 # Shane Jackson
 
-_Budding software engineer based in London_ <br>
-
 [Email](mailto:shanejackson@outlook.com) / [LinkedIn](https://www.linkedin.com/in/shane-jackson-a9043b187)
 
 ## About me
